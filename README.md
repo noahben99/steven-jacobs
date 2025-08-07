@@ -32,7 +32,7 @@
     - Variety of new intellectual challenges.<br><br> 
 
 
-## **What do Iexpect from my manager?**
+## **What do I expect from my manager?**
 - Someone who actively listens to my feedback andencourages open _**communication**_.
 - Someone who fosters a positive team environment and encourages _**collaboration**_.
 - Someone who values my _**career**_ _**progression**_ and appreciates my ambition to grow and learn.
